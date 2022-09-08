@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **rishikeshb19307@cse.ssn.edu.in**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1DcTON8GfztXj7AFaqpt-NokOv4GLLjfJ/view?usp=sharing](https://drive.google.com/file/d/1DcTON8GfztXj7AFaqpt-NokOv4GLLjfJ/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1gNIQbjt8FhZA61yS3OyBVd_NZd3YWSx6/view?usp=sharing](https://drive.google.com/file/d/1gNIQbjt8FhZA61yS3OyBVd_NZd3YWSx6/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
